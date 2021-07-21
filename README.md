@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sexplosive
+- 👀 I’m interested in programming and music
+- 🌱 I’m currently learning python
+- 📫 Reach me on discord: Robin Biciklije#9999
