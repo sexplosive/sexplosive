@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sexplosive
 - 👀 I’m interested in programming and music
 - 🌱 I’m currently learning python
-- 📫 Reach me on discord: 100% real steam trade offer link#9999#9999
+- 📫 Reach me on discord: 100% real steam trade offer link#9999
