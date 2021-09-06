@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sexplosive
-- 👀 I’m interested in programming and music
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning python
 - 📫 Reach me on discord: 0628#9999
